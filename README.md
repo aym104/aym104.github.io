@@ -1,1 +1,5 @@
-# aymanali
+IF U ARE LOOKING FOR RENT/BUYING OXYGEN,VENTILATOR,Remdesivir,Favipiravir,Tocilizumab,Plasma,Fabiflu,ICU.
+CLICK IN THE LINK BELOW 
+https://aymanali99.xyz/covid19/
+BY WEB DEVELOPER AYMAN ALI STUDENT OF SOUTH POINT SCHOOL CLASS 9 (SON OF ALINAZ FALAHUDDIN)
+![Uploading image.png…]()
